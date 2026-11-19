@@ -1,0 +1,2 @@
+# adeziune
+Adeziune Sindicat CORE
